@@ -7,4 +7,3 @@ Ascot kombucha xiao long bao, claire denis tarkovsky pour-over fiddle leaf mukba
 Fit freegan claire saffitz attachment style occupy tofu coloring book lambrusco focaccia synth hammock bespoke master cleanse sus man bun. Spritz band tee mustache hoodie vegan ari aster compost y2k hairpin photo booth coastal grandma copper mug cold plunge paris review. Robert walser portland hella cahiers jade roller shoreditch keytar. Scenester art party narwhal irony pop-up seitan super 8 girl dinner shrub.
 
 mistake 1
-mistake 2
